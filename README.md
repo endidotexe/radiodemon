@@ -1,1 +1,3 @@
-# radiodemon
+i do not know how this website works, genuinely, nor am i going to figure it out. but hello i am endi... my pronounce are they/them and i'm 19 and my special interest is HAZBIN HOTEL. i've been a fan since 2018, pre pilot days don't play wit me. i am alastor's #1 FAN idc what anyone says that man is my husband and he is my oh so sexy husband oh yes. i am a nasty dirty charlastor shipper (not sorry), they're my absolute #1, BUT! i am also a lovely generous multishipper, so i ship pretty much everyone! very few but strong exceptions... (RADIOMAID DNI. FOR REAL.) 
+
+i LOVE making friends, pls do int especially if you are a charlastor shipper i need more charla friends... follow me on twitter @endidotexe i am so insanely active there i am pretty funny if i do say so myself. ok k thnx
